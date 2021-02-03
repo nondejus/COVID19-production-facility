@@ -1,1 +1,0 @@
-# bemoeigurus-at-work-COVID19-production-facility
